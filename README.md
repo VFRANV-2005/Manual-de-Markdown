@@ -39,4 +39,7 @@ ___
 ***El viernes pasado fue el día en que a David le hizo farming Codina. El pobre, al ver el examen, se le abrió tanto el culo que ahora no puede ni sentarse en una silla. Los doctores fliparon al ver semejante obertura anal y no supieron ni siquiera qué recetarle. Cuenta la leyenda que, años después, el chico aún camina medio torcido por el dolor y que aún le resuena en su cabeza la frase que Codina le dijo tras entregarle el examen: "haber estudiao".***
 
 ## Enlaces
-[Pa el cul de David](https://th.bing.com/th/id/OIP.F3Z_rZjGdmsdg4JE_0BsOwHaHa?w=217&h=216&c=7&r=0&o=5&dpr=1.7&pid=1.7) 
+[El video que es fica el David pa motivarse](https://youtu.be/lSm4QZqN8cA?si=w4Bh262WXJDeFE4y) 
+
+## Imágenes
+[Pa el cul de David](https://th.bing.com/th/id/OIP.F3Z_rZjGdmsdg4JE_0BsOwHaHa?w=217&h=216&c=7&r=0&o=5&dpr=1.7&pid=1.7)
