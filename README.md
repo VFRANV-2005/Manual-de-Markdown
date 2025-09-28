@@ -1,6 +1,5 @@
 # Manual-de-Markdown
 
-
 ## Encabezado
 
 # Encabezado 1
@@ -15,13 +14,11 @@
 
 ###### Encabezado 6
 
-
 ## Citas
 
 > Esto es una cita
 >
 > Continuacion de la cita
-
 
 ### Listas
 
@@ -33,3 +30,10 @@
 
 + Elemento 3
 
+### Numeradas
+
+1. Elemento 1
+
+2. Elemento 2
+
+3. Elemento 3
