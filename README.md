@@ -69,3 +69,7 @@ quien aprenda bien, saldrá fortalecido.
 
 También puedes usar `código` así
 
+##Anulas Markdown
+
+De esta forma\*anulas Markdown*.
+
